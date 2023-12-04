@@ -17,7 +17,7 @@ Moomintroll is the main character Tove Jansson wrote for her story. Although Moo
 
 ![Moominpapa](https://static.wikia.nocookie.net/moomin/images/f/f3/Muminpappa.jpg)
 
-Along with Moomintroll, we have his father Moominpapa. (For some reason, Tove Jansson decided to name her characters based on their species rather than an actual name, except *some* characters) 
+Along with Moomintroll, we have his father, Moominpapa. (For some reason, Tove Jansson decided to name her characters based on their species rather than an actual name, except *some* characters) 
 We first meet him in Tove Jansson's first published book: "Moomins and the Great Flood". Moominpapa loves thinking highly of himself, he's a great storyteller who loves his family. He's quite restless and is always out for opportunities for an adventure. He'd always been independent in his youth, and with him in his younger years were his friends: **Hodgekins**, an esteemed inventor, **The Muskrat**, who likes to collect junk, and **The Joxter**, a mysterious man and a vagabond by heart. (Mentioned characters appear in "Moominpapa's Memoirs")
 
 **Moominmama**
