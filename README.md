@@ -7,7 +7,7 @@ Moomins was illustrated and written by a Finnish writer by the name of Tove Jans
 
 ## What's Moomin? Who's Moomin?
 
-![Moomintroll](https://static.wikia.nocookie.net/mayrey/images/3/3f/Moomin.png/revision/latest/thumbnail/width/360/height/360?cb=20180306143150)
+![Moomintroll](https://static.wikia.nocookie.net/moomin/images/f/f5/Muumin.png/revision/latest?cb=20190411020609)
 
 Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended. 
 
