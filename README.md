@@ -9,8 +9,18 @@ Moomins was illustrated and written by a Finnish writer by the name of Tove Jans
 
 ![Moomintroll](https://static.wikia.nocookie.net/mayrey/images/3/3f/Moomin.png/revision/latest/thumbnail/width/360/height/360?cb=20180306143150)
 
-Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended.
+Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended. 
 
+## Meet the Main Cast
+
+![Moominpapa](https://static.wikia.nocookie.net/moomin/images/f/f3/Muminpappa.jpg/revision/latest?cb=20141226090307)
+
+Along with Moomintroll, we have his father Moominpapa. (For some reason, Tove Jansson decided to name her characters based on their species rather than an actual name, except *some* characters) 
+We first meet him in Tove Jansson's first published book: "Moomins and the Great Flood". Moominpapa loves thinking highly of himself, he's a great storyteller who loves his family. He's quite restless and is always out for opportunities for an adventure. He'd always been independent in his youth, and with him in his younger years were his friends: **Hodgekins**, an esteemed inventor, **The Muskrat**, who likes to collect junk, and **The Joxter**, a mysterious man and a vagabond by heart. (Mentioned characters appear in "Moominpapa's Memoirs")
+
+
+
+## The Moomins
 
 ![Moomins and The Great Flood](https://upload.wikimedia.org/wikipedia/en/d/d7/Moominsgreatflood.jpg)
 
