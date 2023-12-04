@@ -11,6 +11,7 @@ Moomins was illustrated and written by a Finnish writer by the name of Tove Jans
 
 Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended.
 
+
 ![Moomins and The Great Flood](https://upload.wikimedia.org/wikipedia/en/d/d7/Moominsgreatflood.jpg)
 
 The first Moomin story published was: Moomins and The Great Flood. It was published by Söderström & Co. in 1945. It was about Moomintroll and Moominmama's search for the missing MoominPapa and how they got to Moominvalley because of it. 
