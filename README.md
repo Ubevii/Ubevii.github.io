@@ -33,4 +33,6 @@ Moominmama is Moomintroll's mother.
 The first Moomin story published was: Moomins and The Great Flood. It was published by Söderström & Co. in 1945. It was about Moomintroll and Moominmama's search for the missing MoominPapa and how they got to Moominvalley because of it. 
 
 
-[!(moomin op)(https://img.youtube.com/vi/Ts6Nd9imTwg/sddefault.jpg)](https://youtu.be/Ts6Nd9imTwg "Moomin 1990 Japanese Intro HD")
+[![IMAGE ALT TEXT](http://img.youtube.com/vi/Ts6Nd9imTwg&ab/0.jpg)](https://www.youtube.com/watch?v=Ts6Nd9imTwg&ab "Moomin 1990 Japanese Intro HD")
+
+
