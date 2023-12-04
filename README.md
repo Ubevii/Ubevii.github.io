@@ -5,9 +5,9 @@ Violet Kristel Ianna J. Barrameda
 
 Moomins was illustrated and written by a Finnish writer by the name of Tove Jansson. Despite being born and raised in Finland, her first language was Swedish, hence The Moomins were written in Swedish rather than Finnish. But, Before we dwell on Tove Jansson's work, let's know more about her characters.
 
-# What's Moomin? Who's Moomin?
+## What's Moomin? Who's Moomin?
 
-![Moomintroll](https://cdn2.penguin.com.au/covers/original/9780241343388.jpg)
+![Moomintroll](https://static.wikia.nocookie.net/mayrey/images/3/3f/Moomin.png/revision/latest/thumbnail/width/360/height/360?cb=20180306143150)
 
 Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended.
 
