@@ -9,19 +9,27 @@ Moomins was illustrated and written by a Finnish writer by the name of Tove Jans
 
 ![Moomintroll](https://static.wikia.nocookie.net/moomin/images/f/f5/Muumin.png/revision/latest?cb=20190411020609)
 
-Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended. 
+Moomintroll is the main character Tove Jansson wrote for her story. Although Moomintroll appears to like that of a white hippo, he's a Moomin. To put it in other words, Moomins just look like white hippos... Moomintroll is a kind, caring, and curious character, and considering the story revolves around him, that is to say, he is very adventurous, even if not intended. 
 
 ## Meet the Main Cast
+
+**Moominpapa**
 
 ![Moominpapa](https://static.wikia.nocookie.net/moomin/images/f/f3/Muminpappa.jpg/revision/latest?cb=20141226090307)
 
 Along with Moomintroll, we have his father Moominpapa. (For some reason, Tove Jansson decided to name her characters based on their species rather than an actual name, except *some* characters) 
 We first meet him in Tove Jansson's first published book: "Moomins and the Great Flood". Moominpapa loves thinking highly of himself, he's a great storyteller who loves his family. He's quite restless and is always out for opportunities for an adventure. He'd always been independent in his youth, and with him in his younger years were his friends: **Hodgekins**, an esteemed inventor, **The Muskrat**, who likes to collect junk, and **The Joxter**, a mysterious man and a vagabond by heart. (Mentioned characters appear in "Moominpapa's Memoirs")
 
+**Moominmama**
 
+![alt text](https://static.wikia.nocookie.net/moomin/images/8/8c/Moominmamma1.jpg/revision/latest?cb=20190425233456)
+
+Moominmama is Moomintroll's mother, 
 
 ## The Moomins
 
 ![Moomins and The Great Flood](https://upload.wikimedia.org/wikipedia/en/d/d7/Moominsgreatflood.jpg)
 
 The first Moomin story published was: Moomins and The Great Flood. It was published by Söderström & Co. in 1945. It was about Moomintroll and Moominmama's search for the missing MoominPapa and how they got to Moominvalley because of it. 
+
+![Moomins 90's](<iframe width="560" height="315" src="https://www.youtube.com/embed/9YAmXjBUp-g?si=hLwt3CY3JAmdsddU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>)
