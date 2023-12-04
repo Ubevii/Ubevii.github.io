@@ -22,7 +22,7 @@ We first meet him in Tove Jansson's first published book: "Moomins and the Great
 
 **Moominmama**
 
-![alt text](https://i.pinimg.com/564x/3b/e0/cd/3be0cd4588fba870bee787dcfdb62f55.jpg)
+![alt text](https://static.wikia.nocookie.net/moomin/images/8/8c/Moominmamma1.jpg/revision/latest?cb=20190425233456)
 
 Moominmama is Moomintroll's mother, 
 
