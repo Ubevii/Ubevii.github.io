@@ -24,7 +24,7 @@ We first meet him in Tove Jansson's first published book: "Moomins and the Great
 
 ![alt text](https://static.wikia.nocookie.net/moomin/images/8/8c/Moominmamma1.jpg/revision/latest?cb=20190425233456)
 
-Moominmama is Moomintroll's mother, 
+Moominmama is Moomintroll's mother. 
 
 ## The Moomins
 
@@ -33,4 +33,4 @@ Moominmama is Moomintroll's mother,
 The first Moomin story published was: Moomins and The Great Flood. It was published by Söderström & Co. in 1945. It was about Moomintroll and Moominmama's search for the missing MoominPapa and how they got to Moominvalley because of it. 
 
 
-![moomin op](https://www.youtube.com/watch?v=Ts6Nd9imTwg&ab_channel=Suap)
+[!(moomin op)(https://youtu.be/Ts6Nd9imTwg.jpg)](https://youtu.be/Ts6Nd9imTwg "Moomin 1990 Japanese Intro HD")
